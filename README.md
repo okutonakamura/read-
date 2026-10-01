@@ -3,7 +3,7 @@
 
 
 
-<img width="540" height="540" alt="image" src="https://file.garden/aB7ITpCIy0NhQrda/Untitled391_20261001175652.png" />
+<p align="center"><img width="540" height="540" alt="image" src="https://file.garden/aB7ITpCIy0NhQrda/Untitled391_20261001175652.png" />
 
 
 
