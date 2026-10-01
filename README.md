@@ -1,8 +1,8 @@
 <img width="1800" height="529" alt="image" src="https://github.com/user-attachments/assets/a7586a0b-8f76-4ef7-a49b-06ff0d1ad730" />
 
 
-
-
+<p align="center">𝓃𝕒ⓚ𝓪ⓜ𝕦𝓇 ‎ ‎ ་ུ༷𖥔 ݁˖ ‎ ‎ Masculine 𝓉-ⓑ𝑜y̲ ꒰꒰ 𝓱ⓔ/h̲𝕚ꩇ ♪ Taken .༢ 𝟘③/❶⁷  𓏼˚̣̣̣𐂯
+<p align="center">𝕔𝓱ⓢt̲      ͡ །†      int!!
 <p align="center"><img width="540" height="540" alt="image" src="https://file.garden/aB7ITpCIy0NhQrda/Untitled391_20261001175652.png" />
 
 
